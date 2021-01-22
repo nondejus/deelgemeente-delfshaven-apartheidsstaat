@@ -1,2 +1,0 @@
-# deelgemeente-delfshaven-apartheidsstaat
-coolhaveneiland
